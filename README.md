@@ -1,0 +1,1 @@
+# funcion-transferencia-en-lazo-cerrado-descripcion-polos-Moises-Romero-mrh031094
